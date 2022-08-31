@@ -1,2 +1,2 @@
-Non readme file created
+Non readme file created, just edited as instructed
 
